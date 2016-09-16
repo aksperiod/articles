@@ -9,4 +9,4 @@ Matt can summarize this.
 
 ### [Velocipedia](http://www.gianlucagimini.it/prototypes/velocipedia.html)
 
-Artist 3D renders people's drawings of bicycles and explains why there is a important degree of imagination lost in being good at something, or "everyone, regardless his age and job, can come up with extraordinary, wild, new and at times brilliant inventions."
+Artist 3D renders people's drawings of bicycles and explains why there is a important degree of imagination lost in being good at something, or that "everyone, regardless his age and job, can come up with extraordinary, wild, new and at times brilliant inventions."
