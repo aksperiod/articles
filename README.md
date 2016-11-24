@@ -12,6 +12,8 @@ A cinematic experience complete with mystery, nostalgia, sex, and nicki minaj at
 
 Do you love your work? Why? Why should you? Do you "love what you do" and "do what you love?" What systems are in place that allow you to love what you do? And if you do love your work, is it part of your identity? In their words "Do what you love and you’ll never work a day in your life! Before succumbing to the intoxicating warmth of that promise, it’s critical to ask, “Who, exactly, benefits from making work feel like non-work?” “Why should workers feel as if they aren’t working when they are?”  Yeah...why? Huh? Fuck if I know, man. Crazy stuff, right?
 
+### [As Crummy As You Wanna Be](http://www.erickarjaluoto.com/blog/as-crummy-as-you-wanna-be/)
+Make shittier art until you can make what you want, get used to the fact that you're not going to love your original work but it's all a process.
 
 ### [Velocipedia](http://www.gianlucagimini.it/prototypes/velocipedia.html)
 
